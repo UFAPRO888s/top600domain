@@ -4,7 +4,7 @@
 <meta property="og:image" content="https://ufapro888s.github.io/top600domain/%E0%B9%80%E0%B8%88%E0%B8%A3%E0%B8%B4%E0%B8%8D%E0%B8%A3%E0%B8%B8%E0%B9%88%E0%B8%87%E0%B9%80%E0%B8%A3%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9E%E0%B8%99%E0%B8%B1%E0%B8%99.png">
 <meta property="og:description" content="ทราฟฟิคการเข้าชมเว็บไซต์ และ ลิ้งค์ย้อนกลับที่มีคุณภาพสูง ส่งทราฟฟิค กลับมาที่เว็บไซต์ รายชื่อโดเมนที่เข้าร่วม ทราฟฟิคลิ้งค์ย้อนกลับ คุณภาพสูง ChangYed top domain list">
 <meta name="google-site-verification" content="ZCdoG7LYFone4KME-zn_KKkUDB_cZ0CTvRYVbjkcW5M" />
-    
+[[File:Loopyt.com เว็บแทงบอล framework react.png|thumb|เว็บแทงบอล loopyt.com เป็นต้นฉบับ เว็บแรกของประเทศไทย ที่สร้างขึ้นด้วย framework react ที่สมบูรณ์ที่สุด]]
 600 ทราฟฟิค by ChangYed
 =======================
 **ทราฟฟิค** [**Traffic domain**](https://pnckdevapp.com/) คือการแลกเปลี่ยน
